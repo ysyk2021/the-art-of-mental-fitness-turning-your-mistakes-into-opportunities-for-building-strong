@@ -22,8 +22,6 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-Sure! Here are 20 Amazon search keywords related to the book "The Art of Mental Fitness: Turning Your Mistakes into Opportunities for Building Strong Mental Muscles":
-
 1. Mental fitness book
 2. Building strong mental muscles
 3. Mental resilience guide
@@ -44,6 +42,3 @@ Sure! Here are 20 Amazon search keywords related to the book "The Art of Mental 
 18. Nurturing a growth mindset
 19. Enhancing problem-solving skills
 20. Techniques for personal development
-
-Please note that these are just general keywords related to the book. The availability and relevance of specific search results may vary on the Amazon platform.
-
