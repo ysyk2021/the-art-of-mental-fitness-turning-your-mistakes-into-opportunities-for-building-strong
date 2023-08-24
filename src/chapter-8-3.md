@@ -1,5 +1,3 @@
-Building Communication and Empathy Skills
-====================================================
 
 In this chapter, we will explore the importance of building communication and empathy skills as part of our mental fitness journey. Effective communication and empathy are essential for developing strong mental muscles, fostering deeper connections, and navigating relationships and interactions with others.
 

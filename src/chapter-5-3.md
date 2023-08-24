@@ -1,5 +1,3 @@
-Building Resilience and Adaptability
-===============================================
 
 In this chapter, we will explore the importance of building resilience and adaptability in the pursuit of mental fitness. Resilience and adaptability are crucial qualities that enable us to navigate the ups and downs of life, overcome challenges, and grow stronger in the face of adversity. Let's delve into strategies and practices that can help us build resilience and adaptability.
 

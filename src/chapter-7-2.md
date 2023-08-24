@@ -1,5 +1,3 @@
-Techniques for Building Positive Habits and Routines
-===============================================================
 
 In this chapter, we will explore techniques for building positive habits and routines that contribute to building strong mental muscles. Habits and routines play a crucial role in our mental fitness journey, shaping our behaviors and influencing our overall well-being. By incorporating these techniques into your life, you can establish positive habits and routines that support your mental growth and well-being.
 

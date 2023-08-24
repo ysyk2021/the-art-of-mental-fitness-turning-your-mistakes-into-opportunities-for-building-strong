@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Mental Fitness
-=========================================================
 
 In this chapter, we will explore the importance of developing a growth mindset in mental fitness and techniques for cultivating a growth mindset. We will also discuss common obstacles to building strong mental muscles and strategies for overcoming them.
 

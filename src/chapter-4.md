@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 In this chapter, we will explore the importance of self-awareness in mental fitness and techniques for building self-awareness in relation to mental fitness. We will also discuss how identifying your mental strengths and weaknesses and building focus and concentration can help individuals to improve their mental fitness.
 

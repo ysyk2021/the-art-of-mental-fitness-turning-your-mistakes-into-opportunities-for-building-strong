@@ -1,5 +1,3 @@
-Setting Goals for Professional Growth through Mental Fitness
-=======================================================================================================================
 
 In this chapter, we will explore how mental fitness can be used to set and achieve professional growth goals. We will discuss the importance of goal setting in career development, techniques for using mental fitness to support goal setting, and strategies for achieving professional growth through mental fitness.
 

@@ -1,5 +1,3 @@
-Overcoming Obstacles to Building Strong Mental Muscles
-=================================================================
 
 In this chapter, we will explore the common obstacles that hinder the development of strong mental muscles and provide strategies to overcome them. By recognizing and addressing these obstacles, we can cultivate resilience, improve our mental fitness, and turn our mistakes into opportunities for growth.
 

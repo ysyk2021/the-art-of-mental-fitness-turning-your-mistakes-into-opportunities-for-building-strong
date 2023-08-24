@@ -1,5 +1,3 @@
-Understanding the Role of Habits and Routines in Mental Fitness
-==========================================================================
 
 In this chapter, we will explore the significant role that habits and routines play in cultivating mental fitness. Our daily habits and routines have a profound impact on our mental well-being, cognitive abilities, and emotional resilience. Understanding how to develop positive habits and establish effective routines can greatly enhance our mental fitness journey. Let's dive into the importance of habits and routines and discover strategies for incorporating them into our lives.
 

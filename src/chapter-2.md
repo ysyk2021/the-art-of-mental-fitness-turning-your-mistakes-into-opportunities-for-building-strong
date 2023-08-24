@@ -1,5 +1,3 @@
-Chapter 1: Understanding Mental Fitness
-=======================================
 
 In this chapter, we will explore the concept of mental fitness and its importance in achieving overall well-being and success. We will discuss different types of mental fitness, the benefits of developing strong mental muscles, and how to cultivate mental fitness in everyday life.
 

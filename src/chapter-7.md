@@ -1,5 +1,3 @@
-Chapter 6: Building Positive Habits and Routines
-================================================
 
 In this chapter, we will explore the role of habits and routines in mental fitness, as well as practical techniques for building positive habits and routines. By developing self-discipline and motivation, individuals can cultivate positive habits and routines that support their overall success and fulfillment.
 

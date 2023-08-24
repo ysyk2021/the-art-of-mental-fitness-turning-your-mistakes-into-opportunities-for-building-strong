@@ -1,5 +1,3 @@
-Setting Goals for Personal Growth through Mental Fitness
-===================================================================
 
 In this chapter, we will explore the importance of setting goals for personal growth and how mental fitness can help us in this process. By leveraging the principles of mental fitness, we can establish clear objectives, stay motivated, and navigate the path towards personal growth effectively.
 

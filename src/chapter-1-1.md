@@ -1,5 +1,3 @@
-Why Mental Fitness is Important
-==========================================
 
 In this chapter, we will explore the importance of mental fitness and its impact on our overall well-being. We will delve into the various aspects of mental fitness, its benefits, and why it is crucial in today's fast-paced and challenging world.
 

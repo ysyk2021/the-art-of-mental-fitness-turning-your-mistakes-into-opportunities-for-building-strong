@@ -1,5 +1,3 @@
-Chapter 8: Applying Mental Fitness to Personal Growth
-=====================================================
 
 In this chapter, we will explore how to apply the principles of mental fitness to personal growth and development. By developing strong mental muscles and cultivating a growth mindset, individuals can achieve greater overall success and fulfillment in their personal lives.
 

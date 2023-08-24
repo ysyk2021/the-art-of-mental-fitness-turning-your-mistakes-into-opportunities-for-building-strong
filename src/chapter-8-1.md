@@ -1,5 +1,3 @@
-The Importance of Positive Relationships in Mental Fitness
-=====================================================================
 
 In this chapter, we will explore the significant role that positive relationships play in our mental fitness journey. Cultivating and nurturing healthy connections with others is essential for building strong mental muscles, enhancing well-being, and promoting personal growth.
 

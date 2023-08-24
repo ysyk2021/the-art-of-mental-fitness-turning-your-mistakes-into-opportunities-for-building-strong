@@ -1,5 +1,3 @@
-Types of Mental Fitness
-==================================
 
 In this chapter, we will explore different types of mental fitness that contribute to overall well-being and the development of strong mental muscles. Mental fitness encompasses various dimensions, each playing a vital role in maintaining a healthy mind and navigating life's challenges. Let's delve into these different types of mental fitness.
 

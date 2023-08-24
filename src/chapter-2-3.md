@@ -1,5 +1,3 @@
-The Benefits of Strong Mental Muscles
-================================================
 
 In this chapter, we will explore the numerous benefits that come with building strong mental muscles. Just as physical strength empowers us to overcome physical challenges, developing mental strength equips us with the tools to tackle life's obstacles and thrive in various domains. Let's delve into the advantages of cultivating robust mental muscles.
 

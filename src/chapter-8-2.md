@@ -1,5 +1,3 @@
-Techniques for Cultivating Positive Relationships
-============================================================
 
 In this chapter, we will explore various techniques for cultivating positive relationships as part of our mental fitness journey. Building and nurturing healthy connections with others is essential for personal growth, well-being, and building strong mental muscles.
 

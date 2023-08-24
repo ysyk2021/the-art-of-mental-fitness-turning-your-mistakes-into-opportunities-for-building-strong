@@ -1,5 +1,3 @@
-Using Mental Fitness for Career Development
-======================================================================================================
 
 In this chapter, we will explore how mental fitness can be applied to professional growth and career development. We will discuss the importance of mental fitness in the workplace, techniques for building mental fitness to support career development, and strategies for using mental fitness to achieve professional goals.
 

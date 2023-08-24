@@ -1,5 +1,3 @@
-Building Skills and Expertise
-========================================================================================
 
 In this chapter, we will explore how to apply the principles of mental fitness to professional growth. By developing strong mental muscles, individuals can achieve greater success in their careers, build valuable skills and expertise, and make meaningful contributions to their organizations.
 

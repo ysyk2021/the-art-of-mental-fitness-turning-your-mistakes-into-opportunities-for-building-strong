@@ -1,5 +1,3 @@
-What is Mental Fitness?
-==================================
 
 *Mental fitness* is a concept that encompasses the overall well-being and optimal functioning of our minds. Similar to physical fitness, which involves maintaining a healthy body through exercise and proper nutrition, mental fitness focuses on cultivating a strong and resilient mind.
 

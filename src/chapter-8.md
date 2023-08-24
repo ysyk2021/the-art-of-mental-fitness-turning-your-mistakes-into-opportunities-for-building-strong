@@ -1,5 +1,3 @@
-Chapter 7: Cultivating Positive Relationships
-=============================================
 
 In this chapter, we will explore the importance of positive relationships in mental fitness, techniques for cultivating positive relationships, and building communication and empathy skills.
 

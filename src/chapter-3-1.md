@@ -1,5 +1,3 @@
-Understanding the Importance of a Growth Mindset in Mental Fitness
-=============================================================================================================================
 
 In this chapter, we will explore the importance of developing a growth mindset in mental fitness and how it can impact an individual's overall well-being. We will also discuss the characteristics of a growth mindset and how they can be applied to building strong mental muscles.
 

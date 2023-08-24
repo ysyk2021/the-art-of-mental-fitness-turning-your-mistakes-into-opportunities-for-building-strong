@@ -1,5 +1,3 @@
-Building Self-Discipline and Motivation
-==================================================
 
 In this chapter, we will explore strategies for building self-discipline and motivation, which are essential for cultivating strong mental muscles. Self-discipline enables you to overcome challenges and stick to your goals, while motivation provides the drive and enthusiasm necessary to pursue them. By incorporating these techniques into your life, you can develop the self-discipline and motivation needed to build a resilient and mentally fit mind.
 
