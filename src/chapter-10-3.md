@@ -1,5 +1,4 @@
-Chapter: Building Skills and Expertise
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the importance of building skills and expertise as a crucial component of mental fitness. We explore how turning mistakes into opportunities for growth can help individuals develop strong mental muscles and enhance their abilities in various areas.
 
